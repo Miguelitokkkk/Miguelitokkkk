@@ -1,16 +1,14 @@
-## Hi there 👋
+OI🤨
 
-<!--
-**Miguelitokkkk/Miguelitokkkk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+Aqui estão algumas ideias para você começar:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🔭 Atualmente estou cursando o 1°ano do E.M....🤌
+- 🌱 Atualmente não estou aprendendo ...👎
+- 👯 Procuro colaborar em nada...👀
+- 🤔 Estou procurando ajuda com tudo ...💪
+- 💬 Pergunte-me sobre qualquer coisa ...😖
+- 📫 Como entrar em contato comigo: ...😣
+- 😄 Pronomes: ele/dele ...🙇
+- ⚡ Curiosidade: gosto de jogar roblox...🎮
+  
