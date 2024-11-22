@@ -8,7 +8,7 @@ Aqui estão algumas ideias para você começar:
 - 👯 Procuro colaborar em nada...👀
 - 🤔 Estou procurando ajuda com tudo ...💪
 - 💬 Pergunte-me sobre qualquer coisa ...😖
-- 📫 Como entrar em contato comigo: ...😣
+- 📫 Como entrar em contato comigo:gmail:miguel.chueda@escola.pr.gov.br
 - 😄 Pronomes: ele/dele ...🙇
 - ⚡ Curiosidade: gosto de jogar roblox...🎮
   
