@@ -12,3 +12,4 @@ Aqui estão algumas ideias para você começar:
 - 😄 Pronomes: ele/dele ...🙇
 - ⚡ Curiosidade: gosto de jogar roblox...🎮
   
+![](https://media1.tenor.com/m/JZ_aia8T7wYAAAAd/kittycatreadfaq-readfaq.gif)
